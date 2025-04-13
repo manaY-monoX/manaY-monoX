@@ -1,6 +1,6 @@
 # Yamashita Manato
 
-![github-monox-yamashitamanato](https://github.com/user-attachments/assets/3b8c388d-a7be-4cb9-b3f4-5efee6014281)
+![manaY-monoX-20250413](https://github.com/user-attachments/assets/ff19fc3a-22a3-4168-9dc5-f0e82d7944e4)
 
 ## About Me
 - 🌟 プロダクト事業部2025年度新卒
