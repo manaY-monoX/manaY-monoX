@@ -1,4 +1,4 @@
-# Yamashita Manato
+# Manato Yamashita
 
 ![manaY-monoX-20250413](https://github.com/user-attachments/assets/ff19fc3a-22a3-4168-9dc5-f0e82d7944e4)
 
